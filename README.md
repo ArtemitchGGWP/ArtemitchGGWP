@@ -7,6 +7,7 @@ About Me
 - Learning new techniques in game design and programming mainly C++
 - 
 - How to Reach Me?
+- My Website: milangomola.com
 - Email: MilanGomola.official@gmail.com
 - LinkedIn: https://www.linkedin.com/in/milan-gomola-0307a3253/
 - Fun Fact: I love diving deep into the lore of my favorite games and movies!
