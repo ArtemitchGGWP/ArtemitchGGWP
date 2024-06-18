@@ -19,3 +19,5 @@
 ### Fun Fact
 
 I love diving deep into the lore of my favorite games and movies!
+
+![image](https://github.com/ArtemitchGGWP/ArtemitchGGWP/assets/121636000/d40ad993-8966-4d51-92f3-f4701e5e1c82)
